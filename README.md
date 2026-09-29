@@ -1,1 +1,0 @@
-# Proyecto_BD_Avanzada_Andres-Felipe-Rojas-Avenda-o
